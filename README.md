@@ -1,5 +1,5 @@
 # INCREDIBLY AVERAGE
-I have too many hobbies
+I'm AVERAGEaussie a borderline insane creative, also a linux user :3
 <!--
 **averageaussie/averageaussie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
